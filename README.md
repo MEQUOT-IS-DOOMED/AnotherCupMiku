@@ -1,4 +1,4 @@
-## Hi there 👋
+another remake om.
 
 <!--
 **AnotherCupMiku/AnotherCupMiku** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
