@@ -124,7 +124,7 @@ ${\textsf{\color{#3c76b3}. "}}$
 03. creeps .
 03. bullies .
 04. being left behind .
-05. being called as my dead name .
+05. being called as my old name .
 06. getting ignored .
 07. fake friend's .
     etc .
