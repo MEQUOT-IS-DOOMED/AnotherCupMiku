@@ -142,7 +142,7 @@ ${\textsf{\color{#3c76b3}" see ya later ,}}$
 ${\textsf{\color{#e0265f}newbie}}$
 ${\textsf{\color{#3c76b3}. "}}$
 
-[ yo Asriel why did you even bother to check my GitHub and then int w me in pt LMAOO 😭😭 ]
+[ yo Asriel why did you even bother to check my GitHub like 3 days ago i think and then whisp me in pt abt the dni list 💔 ]
 
 ═══════════════════════════
 
